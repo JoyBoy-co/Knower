@@ -1,0 +1,2 @@
+# Knower
+ALLAH IS PLANNER
